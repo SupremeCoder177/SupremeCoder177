@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Everything
 - 💞️ I’m looking to collaborate on ... Everything
 - 📫 How to reach me ... onlyforworkplsremember@gmail.com or betterthanthelastonel0l@gmail.com or
-message me at +919034676637
+message me at +919024676627
 - 😄 Pronouns: ... He/HIm 
 - ⚡ Fun fact: ... Believes in nothing yet everything 
 
