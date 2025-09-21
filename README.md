@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SupremeCoder177
+- 👋 Hi, I’m @SupremeCoder177 or otherwise known as Vansh Vardhan Verma
 - 👀 I’m interested in ... Everything
 - 🌱 I’m currently learning ... Everything
 - 💞️ I’m looking to collaborate on ... Everything
